@@ -47,7 +47,7 @@ And she never entirely lost the mischievous farm girl who once drove around the 
 
 Doris ended one of her stories about her family with words that now seem a fitting way to end the story of her own life: “My family is the greatest! GOD BLESS ALL OF YOU.”
 
-The viewing will be held at Newcomer's White Chapel Funeral Home, 6600 NE Antioch Road, Gladstone, Missouri. The funeral will be held at St. Andrew the Apostle Catholic Church, 6415 NE Antioch Road, Gladstone, Missouri. Dates and times will be announced.
+The viewing will be held Thursday, October 1, 2026, from 4 to 8 p.m. at Newcomer's White Chapel Funeral Home, 6600 NE Antioch Road, Gladstone, Missouri, with the rosary at 7 p.m. The funeral Mass will be held Friday, October 2, 2026, at 10:30 a.m. at St. Andrew the Apostle Catholic Church, 6415 NE Antioch Road, Gladstone, Missouri.
 
 Interment will be at Resurrection Cemetery, 5001 NE Cookingham Road, Kansas City, Missouri, beside her husband, Bill, and her son, Danny.
 

@@ -18,15 +18,15 @@ This is the original book file shared by her family. Because it is a large file,
 
 All times are local (Central Time).
 
-- **Viewing: Thursday, October 1, 2026, 4–8 p.m.** Newcomer's White Chapel Funeral Home, 6600 NE Antioch Road, Gladstone, Missouri.
-- **Rosary: Thursday, October 1, 2026, 7 p.m.** At the funeral home during the viewing.
+- **Viewing: Thursday, October 1, 2026, 6–8 p.m.** Newcomer's White Chapel Funeral Home, 6600 NE Antioch Road, Gladstone, Missouri.
+- **Rosary: Thursday, October 1, 2026, 7:30 p.m.** At the funeral home during the viewing.
 - **Funeral Mass: Friday, October 2, 2026, 10:30 a.m.** St. Andrew the Apostle Catholic Church, 6415 NE Antioch Road, Gladstone, Missouri.
 - **Interment:** Resurrection Cemetery, 5001 NE Cookingham Road, Kansas City, Missouri, beside her husband, Bill, and her son, Danny.
 
-In lieu of flowers, the family asks for donations to [St. Andrew the Apostle Catholic Church](https://sataps.com/).
+In lieu of flowers, the family asks for donations to [St. Andrew the Apostle School Lunch Program](https://pushpay.com/g/standrewtheapostleschool).
 
 ## About this collection
 
 Shared by Doris’s family for friends and loved ones. This repository is read-only; comments, issues, and contributions are closed. The family can update it as arrangements are confirmed.
 
-Last updated September 26, 2026.
+Last updated September 29, 2026.

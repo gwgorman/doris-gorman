@@ -6,6 +6,8 @@ A place for friends and family to read about Doris’s life and enjoy the storie
 
 ## Her obituary
 
+**[Visit Doris’s obituary and memorial page at Dignity Memorial](https://www.dignitymemorial.com/obituaries/gladstone-mo/doris-gorman-13054087)**
+
 [Read the obituary](Obituary.md) · [Download the obituary PDF](https://github.com/gwgorman/doris-gorman/raw/refs/heads/main/Doris_Gorman_Obituary.pdf)
 
 ## Her life stories
